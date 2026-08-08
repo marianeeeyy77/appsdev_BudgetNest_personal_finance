@@ -1,3 +1,3 @@
 Marian Rose Caballero
-Kimberly Diaz
+Kimberly I. Diaz
 John Hector Evangelista
