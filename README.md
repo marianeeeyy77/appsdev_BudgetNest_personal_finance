@@ -1,5 +1,3 @@
-# BudgetNest Personal Finance
-
-## Members
-
-- Kimberly Diaz
+Marian Rose Caballero
+Kimberly Diaz
+John Hector Evangelista
